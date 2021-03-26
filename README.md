@@ -1,5 +1,5 @@
 - 👋 Hi, I’m @leh1x
-- 👀 I’m interested in programming
+- 👀 I’m interested in Computer programming
 - 🌱 I’m currently learning python
 - 💞️ I’m looking to collaborate on idk)
 - 📫 How to reach me discord: dolbuyawp leh1x#6910
